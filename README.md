@@ -17,8 +17,6 @@
 💰 $33,000 distributed (upgraded from the original $30K pool)
 
 
-
-
 💰 $33,000 distributed (upgraded from the original $30K pool)
 
 💰 $33,000 distributed (upgraded from the original $30K pool)
